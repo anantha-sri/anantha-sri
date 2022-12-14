@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ananthasri7@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFGZEE9Uus/3BLFCwmu5kQsxXm1p5iCDw/edit](https://www.canva.com/design/DAFGZEE9Uus/3BLFCwmu5kQsxXm1p5iCDw/edit)
+- 📄 Know about my experiences https://www.canva.com/design/DAFGZEE9Uus/dQIE9rBcpyiFqcFjM8vB4A/view?utm_content=DAFGZEE9Uus&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
